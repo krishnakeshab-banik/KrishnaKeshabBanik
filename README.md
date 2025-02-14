@@ -1,5 +1,5 @@
 # 💫 About Me:
-🚀 Krishna Keshab Banik | Turning Ideas into Impact<br>Curiosity fuels me, innovation drives me, and problem-solving defines me. I don’t just explore technology—I
+🚀 Krishna Keshab Banik | Turning Ideas into Impact<br>Curiosity fuels me, innovation drives me, and problem-solving defines me. 
 
 
 ## 🌐 Socials:
